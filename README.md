@@ -1,4 +1,4 @@
-# 揭漏资本家丑恶嘴脸和共产党伪善 :link: https://killcpc8964.github.io 
+# 揭漏资本家丑恶嘴脸和中国共产党伪善 :link: https://killcpc8964.github.io 
 ### :page_facing_up: [2](https://killcpc8964.github.io/tag.html) 
 ### :speech_balloon: 0 
 ### :hibiscus: 767 
